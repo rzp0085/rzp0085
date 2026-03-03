@@ -3,7 +3,6 @@
 - 🌱 I’m currently studying Computer and Informational Science at Auburn University
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me at rp51052005@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: I have had multiple bruises and concussions when I was young.
 
 <!---
