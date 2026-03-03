@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rzp0085
+- 👋 Hi, I’m Rudra Patel
 - 👀 I’m interested in Volleyball and How AI Tools work.
 - 🌱 I’m currently studying Computer and Informational Science at Auburn University
 - 💞️ I’m looking to collaborate on ...
