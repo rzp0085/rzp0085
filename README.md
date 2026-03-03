@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rzp0085
 - 👀 I’m interested in Volleyball and How AI Tools work.
-- 🌱 I’m currently studying Computer Science at Auburn University
+- 🌱 I’m currently studying Computer and Informational Science at Auburn University
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me at rp51052005@gmail.com
 - 😄 Pronouns: ...
